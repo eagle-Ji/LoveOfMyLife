@@ -42,8 +42,7 @@ Because **she** is the most wonderful chapter of my life.
 > *"My dearest,  
 > You are the poetry in my silence, the calm in my storms, the smile behind my screen.  
 > If this little GitHub page reaches your eyes, know that it holds a world of devotion.  
-> You are my forever."*
-
+> You are mine forever InshaAllah till Jannah and infinity InshaAllah Ameen."
 ---
 
 ## 🌈 Future of This Repo (and Us!)
