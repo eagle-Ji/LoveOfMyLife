@@ -1,49 +1,39 @@
 # 💖🌹🕌 LoveOfMyLife 🕌🌹💖  
 # 💖 A Love Letter in Code: I Adore My Wife 💖
-
-Welcome to the most precious repository in the universe — a digital love letter for the woman who makes my world brighter, my heart fuller, and my life infinitely better.  
-This space may hold Markdown, but it’s truly filled with du'as, devotion, and every beat of my heart for **my lovely, kind-hearted wife**. 💑💍💐
-
+ 
+### السلام عليكم ورحمة الله وبركاته 🕋🌸✨🤲💕  
+Welcome to the most precious repository in the world 🌍 — a digital love letter 💌 to the most extraordinary woman 🧕 Allah ✨🤲💕 has gifted me: **my breathtaking 🌹, kind-hearted 💗, soul-soothing 💞 wife 💑💍💐 **.  
 ---
 
 ## 🌸 Why This Exists 🌸
 
-💝 Because some love stories deserve version control.  
-🧭 Because every heartbeat with her is a miracle worth remembering.  
-🕊️ Because **she** is my here, my now, my always.  
-🧕🤍 Because Allah SWT blessed me with her, and I pray to always honour that gift.  
-🔐 Because this is my way of saying: **I choose you again, every single day.**
-
+- 📖 Because every great love story 💕 deserves to be documented 📝 — even on GitHub 🧠💻✨!
+- 🧡 Because my wife 🧕 is not just a part of my life 💓 — she *is* my life 💞🌟.
+- 🕊️ Because every heartbeat 💓 with her is a blessing 🌺 written in divine ink 🖊️📿.
+- 🤍 Because in her, I found my tranquility 🕊️🛐 — *Sakoon* 🛏️🌙🌸.
 ---
 
 ## 💕 Reasons I Fall for Her Every Day 💕
 
-- 🌟 **Her Radiant Smile** – lights up my world like a sunrise 🌅✨😊  
-- 🧠 **Her Brilliant Mind** – insightful, curious, and endlessly inspiring 📚💡🎓  
-- 🎨 **Her Creative Soul** – turns life into art, every moment a canvas 🖌️🎭🌷  
-- 🫶 **Her Gentle Heart** – tender, giving, and wrapped in mercy 🤍🕊️🥰  
-- 💫 **Her Presence** – my serenity in chaos, my joy in silence 🌌🌻💐  
-- ☕ **Her Morning Cuteness** – sleepy eyes, warm hugs, and soft giggles ☀️🛏️🧸  
-- 🌹 **Her Love** – unconditional, healing, fierce, and pure ❤️🔥💎  
-- 🧕 **Her Modesty** – rooted in grace and faith 🌸🕋🌙  
-- 🎀 **Her Feminine Elegance** – the way she moves, speaks, smiles 💃👑✨  
-- 🎧 **Her Voice** – a melody my soul never gets tired of 🎼🎤💗  
-- 🕊️ **Her Patience** – quiet strength even in storms 🧘‍♀️🌧️⛅  
-- 🧵 **Her Support** – in every goal, every stumble, she’s my backbone 🎯🪢🛡️
-
+- 🌟✨🌞 **Her Smile** – more radiant 🌈 than sunrise 🌅, warmer 🔥 than coffee ☀️☕🫖🌼🧸
+- 🎨🖌️🌈 **Her Creativity** – turns life into art 🎀🌺🪷, every moment a canvas 🖌️🎭🌷 
+- 🫶🕊️💖 **Her Heart** – a shelter 🏡 of compassion 🤲 and grace 💫🌸🪶
+- 🕌💍🌹 **Her Love** – pure 🤍, powerful 💪, halal 🕌, and forever InshaAllah 🫂🕋💞💍  
+- 🧵💫 🫶 **Her Support** – in every goal📚💡🎓, every stumble 🧘‍♀️🌧️⛅, she’s my backbone 🎯🪢🛡️
 🔁 … and the list goes on forever, just like my love. ♾️🌍💑
 
 ---
 
 ## 📖 Our Love Story (So Far) 📖
 
-| Milestone             | Memory That Lives Forever                              |
-|----------------------|---------------------------------------------------------|
-| 💍 Engagement Day     | The moment I knew Allah had written you for me 🤲💖     |
-| 💒 Wedding Day        | The most sacred "I do" under His light 💍🕌             |
-| ✈️ Shared Journeys    | From rainy walks to golden sunsets 🌧️🌇                |
-| 💞 Every Day Together | Ordinary days made extraordinary by your love 💐🕊️     |
-
+| 🌟 Milestone          | 🌺 Memory That Lives Forever                          |
+|----------------------|--------------------------------------------------------|
+| 💍 Nikah              | The day Allah 🕋 wrote us in each other’s Qadr 📜🤲❤️       |
+| 💒 Wedding            | The happiest, most sacred “Qabool Hay” 💫🕌🧕🎊                 |
+| ✈️ Travels Together   | From flights ✈️ to falafels 🧆, from duas 🤲 to destinations 🌍🍃 |
+| 🏡 Building a Home     | With bricks 🧱 of love 💖, mercy 🤍, patience 🕊️ — and Writing AI Codes  👩‍💻🤖🧬 🛰️ |
+| 📿 Ramadan Together   | Suhoors 🌙, iftars 🧃, tahajjud 🌌, dates 🌴 — together 🤎🥣🕌        |
+| 🥰 Every Moment       | Hugs 🤗, tears 😢, laughs 😂, looks 👀 — our love multiplies 🔁💗 daily 🗓️
 ---
 
 ## 💌 A Message to My Love 💌
