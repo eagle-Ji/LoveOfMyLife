@@ -50,7 +50,6 @@ This space may be filled with code 💻 and Markdown 📄, but every letter ✉�
 >
 > You are mine in this dunya, and **InshaAllah Till Jannah**   
 >  
-> — Your forever admirer and dua partner 🤍"*
 
 ---
 
