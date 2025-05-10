@@ -48,9 +48,7 @@ This space may be filled with code 💻 and Markdown 📄, but every letter ✉�
 
 > *"My love, I made this GitHub page just to make you realise that with every commit in my life, you're the most important change I've ever made."* 
 >
-> You are mine in this dunya, and InshaAllah, mine in Jannah too.  
->  
-> **Till Jannah, InshaAllah.**  
+> You are mine in this dunya, and **InshaAllah Till Jannah**   
 >  
 > — Your forever admirer and dua partner 🤍"*
 
