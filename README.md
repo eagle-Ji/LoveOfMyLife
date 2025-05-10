@@ -2,6 +2,7 @@
 # 💖 A Love Letter in Code: I Adore My Wife 💖
  
 ### السلام عليكم ورحمة الله وبركاته 🕋🌸✨🤲💕  
+
 Welcome to the most precious repository in the world 🌍 — a digital love letter 💌 to the most extraordinary woman 🧕 Allah ✨🤲💕 has gifted me: **my breathtaking 🌹, kind-hearted 💗, soul-soothing 💞 wife 💑💍💐 **.  
 ---
 
@@ -20,7 +21,7 @@ Welcome to the most precious repository in the world 🌍 — a digital love let
 - 🫶🕊️💖 **Her Heart** – a shelter 🏡 of compassion 🤲 and grace 💫🌸🪶
 - 🕌💍🌹 **Her Love** – pure 🤍, powerful 💪, halal 🕌, and forever InshaAllah 🫂🕋💞💍  
 - 🧵💫 🫶 **Her Support** – in every goal📚💡🎓, every stumble 🧘‍♀️🌧️⛅, she’s my backbone 🎯🪢🛡️
-🔁 … and the list goes on forever, just like my love. ♾️🌍💑
+-    🔁 … and the list goes on forever, just like my love. ♾️🌍💑
 
 ---
 
@@ -43,6 +44,8 @@ This space may be filled with code 💻 and Markdown 📄, but every letter ✉�
 
 > **بِسْمِ ٱللَّٰهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ** 🕌🧕📿  
 > "And of His signs is that He created for you from yourselves mates that you may find tranquility in them…" — _Surah Ar-Rum [30:21]_ 🌹📿🕋🕯️❤️ 
+
+
 > *"My love, if this GitHub page ever finds you — just know that with every commit in my life, you're the most important change I've ever made."* 
 > You are mine in this dunya, and InshaAllah, mine in Jannah too.  
 >  
