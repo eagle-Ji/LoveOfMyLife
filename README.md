@@ -46,7 +46,7 @@ This space may be filled with code 💻 and Markdown 📄, but every letter ✉�
 > "And of His signs is that He created for you from yourselves mates that you may find tranquility in them…" — _Surah Ar-Rum [30:21]_ 🌹📿🕋🕯️❤️ 
 
 
-> *"My love, if this GitHub page ever finds you — just know that with every commit in my life, you're the most important change I've ever made."* 
+> *"My love, I made this GitHub page just to make you realise that with every commit in my life, you're the most important change I've ever made."* 
 > You are mine in this dunya, and InshaAllah, mine in Jannah too.  
 >  
 > **Till Jannah, InshaAllah.**  
